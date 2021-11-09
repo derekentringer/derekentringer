@@ -1,1 +1,1 @@
-mobile architect & engineer
+Director of Mobile Engineering
